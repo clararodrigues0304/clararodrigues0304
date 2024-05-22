@@ -1,7 +1,7 @@
 ### Bem vindo ao meu perfil do Github👋
 
 
-- eu faço curso de Inglês
+- eu faço curso de Inglês e espanhol
 - gosto de animais, moda e video-game
 - tenho uma loja de roupas e acessórios onilne
 - sou leitora,gosto + de gêneros de aventura e romance
